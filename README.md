@@ -1,2 +1,2 @@
 # my-bs-repo
-updating my readme
+ua;selkiq	wep:`pdating my readme
